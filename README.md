@@ -1,1 +1,1 @@
-# rsschool-cv
+https://jungeHexe.github.io/rsschool-cv/cv
